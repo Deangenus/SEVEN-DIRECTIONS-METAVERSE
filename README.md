@@ -1,2 +1,2 @@
 # SEVEN-DIRECTIONS-METAVERSE
-Hologram. Interstsllar. Merkaba. Sanfl Hu. Rasta.
+Hologram. Interstsllar. Merkaba. Santl Hu. Rasta.
